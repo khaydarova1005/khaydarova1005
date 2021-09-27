@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @khaydarova
+- 👀 I’m interested in creating websites and listening music
+- 🌱 I’m currently learning in MDIS in Tashkent
+- 📫 How to reach me on telegram by username khaydarova1005
